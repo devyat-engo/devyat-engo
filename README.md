@@ -1,3 +1,3 @@
 # Hi, I’m @devyat-engo
 
-# You can reach me at Twitter @deyvat_engo
+# You can reach me on Twitter @deyvat_engo
